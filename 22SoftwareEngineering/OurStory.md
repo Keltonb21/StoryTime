@@ -3,7 +3,8 @@ I took a trip across the road.
 
 Kaden:
 Brandon:
-Kelton:
+Kelton: I came across a turtle crossing the road.
+
 Alexander
 Abby
 Lizbeth
